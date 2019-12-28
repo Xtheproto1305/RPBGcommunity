@@ -1,5 +1,5 @@
 # RPBGcommunity
 
-Hello guys
+Hello guys, welkome to our minecraft server!!!
 
-Bot is here
+In our server you can fin a lot of good stuff to do :)
